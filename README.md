@@ -1,1 +1,0 @@
-# ugursaysamsungs6.github.io
